@@ -20,4 +20,4 @@ Insieme, con pazienza e fiducia nella Provvidenza, lavoreremo per questo belliss
 
 ---
 
-Pagina Facebook: https://www.facebook.com/messatridentinaiglesias/
+Pagina Facebook: [https://www.facebook.com/messatridentinaiglesias/](https://www.facebook.com/messatridentinaiglesias)
